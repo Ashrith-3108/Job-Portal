@@ -83,7 +83,7 @@ Happy Exploring! ✌🏻
 
 ## Known Bugs 🚨
 
-Feel free to email me at lakshman.gope2@gmail.com if you run into any issues or have questions, ideas, or concerns. Please enjoy
+Feel free to email me at vavillapallyashrith@gmail.com if you run into any issues or have questions, ideas, or concerns. Please enjoy
 and feel free to share your opinion, constructive criticism, or comments about my work. Thank you! 🙂
 
 ## License 📄
